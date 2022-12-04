@@ -14,3 +14,12 @@
 • Establishment of modern transfer stations at strategic locations
 and many more
 
+<h3>The Team:</h3>
+
+Anushka Ghei
+
+Anvesha Nayak
+
+Arvin Nooli
+
+Ashwin Raghupathy
